@@ -1,2 +1,3 @@
-# Carl 2020 #
-## Work More, Charge Less ##
+# Carl 2020 - __Work More, Charge Less__ #
+  
+## COMING SOON ##
